@@ -1,6 +1,1 @@
-迷你世界nb666  
-
-大号：github.com/dsy4567  
-
-小号1：github.com/zhegeshijieshangzuishuaideren  
-
+这是 @dsy4567 的小号
